@@ -1,6 +1,6 @@
 # David Bowie
 
-**Znajduję wolność jedynie w sferze własnej ekscentryczności.**
+** _"Znajduję wolność jedynie w sferze własnej ekscentryczności."_
 >David Bowie
 
 ![David Bowie](https://s-media-cache-ak0.pinimg.com/736x/1a/97/a0/1a97a03261d43bde728398f8a1389cf8.jpg)

@@ -16,9 +16,9 @@
 1. Łazarz
 
 ## Odnośniki do występów koncertowych
-*[DAVID BOWIE Live at the BBC Radio Theatre]https://www.youtube.com/watch?v=TacjMOv6Xwo
-*[David Bowie - Ziggy Stardust - live 1972]https://www.youtube.com/watch?v=3qrOvBuWJ-c
-*[David Bowie - Live By Request]https://www.youtube.com/watch?v=eQq4FH81jd0
+[DAVID BOWIE Live at the BBC Radio Theatre]https://www.youtube.com/watch?v=TacjMOv6Xwo
+[David Bowie - Ziggy Stardust - live 1972]https://www.youtube.com/watch?v=3qrOvBuWJ-c
+[David Bowie - Live By Request]https://www.youtube.com/watch?v=eQq4FH81jd0
 
 ## Najnowsze filmy w których grał Bowie
 Nazwa filmu|Rok wydania

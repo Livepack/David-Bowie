@@ -5,7 +5,7 @@
 
 ![David Bowie](https://s-media-cache-ak0.pinimg.com/736x/1a/97/a0/1a97a03261d43bde728398f8a1389cf8.jpg)
 
-##Kilka wcieleń Davida Bowiego
+## Kilka wcieleń Davida Bowiego
 1. Major Tom
 1. Ziggy Stardust
 1. Amerykanin
